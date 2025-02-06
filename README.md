@@ -1,2 +1,1 @@
-# sgl.
-test-roblox-script
+чек луа файл
