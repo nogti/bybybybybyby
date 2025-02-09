@@ -1,3 +1,2 @@
 universal esp, aimbot 
-full hub
-!one source!
+fps[]adfsap[fasp[f еби меня еби жарким хуем 
