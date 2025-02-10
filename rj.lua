@@ -1,0 +1,1 @@
+﻿https://raw.githubusercontent.com/Exunys/Rejoin-Game/refs/heads/main/Rejoin%20Game.lua
